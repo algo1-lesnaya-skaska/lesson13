@@ -2,8 +2,10 @@
 
 Scratch урок 13 <br>
 <br>
+https://yadi.sk/i/B61jhRgy5PzmPw <br>
+стр. 54-55 <br>
 https://yadi.sk/i/X54AztpOezgAUQ <br>
-стр 86-90 Передача сообщений <br>
+стр. 86-90 Передача сообщений <br>
 
 Scratch 3  ссылка на загрузку: <br>
 https://scratch.mit.edu/download <br>
